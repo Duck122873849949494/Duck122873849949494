@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Duck122873849949494
-- 👀 I’m interested in ... Hacer and developer and Engineer at hard ware
+- 👀 I’m interested in ... Hacer and developer and Engineer at hardware 
 - 🌱 I’m currently learning ... Coding and languages
 - 📫 How to reach me ... No connection it will take a while to get friends until it will not give
 
